@@ -1,0 +1,1 @@
+- 👋 Hi, I’m @pared-imi, originally @pared, its my work account.
